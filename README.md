@@ -97,8 +97,13 @@ I continuously learn, build, and innovate in areas such as Artificial Intelligen
 📫 Connect With Me
 
 - Founder & CEO: GNL Technology
-- GitHub: @GeneloMosesMwazembe
+- GitHub: codergenelo
 - Location: Tanzania 🇹🇿
+- TikTok:@genelo_tz
+- Facebook:genelo Tz
+- Instagram:coder
+- phone:+255621673848
+- 
 
 ---
 
